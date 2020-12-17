@@ -1,2 +1,3 @@
 # health
 Health is the key for your long,happy,and joyfull life
+The well being of a person is way greater than the wealth they have. People don’t understand the phrase ‘health is wealth’ at a young age when they torture their body as they wish to and expect that there would be no consequences. The health effects start bothering you once you grow older. Several problems in the body start showing up, and one has to then suffer from a lot of pain. This pain and adverse effects of unhealthiness cannot be cured by money; therefore, it is proven that a person’s true wealth is having a healthy lifestyle. 
